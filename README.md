@@ -1,0 +1,1 @@
+# JNewsjournd25.github.io
